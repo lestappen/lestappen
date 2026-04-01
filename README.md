@@ -1,3 +1,3 @@
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Caveat&pause=1000&color=DBEDF7&center=true&vCenter=true&width=435&lines=I+was+lying+to+you;you+were+lying+to+me;so+cry+havoc+baby;and+you're+the+one+for+me." alt="Typing SVG" /></a>
+<p align="center"><img width="495" height="504" alt="Image" src="https://github.com/user-attachments/assets/112acc6c-38aa-4b84-a717-5a3c2ed71dc6" />
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-<img width="1200" height="1753" alt="Image" src="https://github.com/user-attachments/assets/6458cdeb-4dba-4737-9247-fed5958587a3" />
+
