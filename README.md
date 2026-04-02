@@ -1,6 +1,6 @@
 
 
-ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ![Image](https://github.com/user-attachments/assets/939900b4-39c5-4aa1-a933-ab0780384687) 
+ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/939900b4-39c5-4aa1-a933-ab0780384687) 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Griffy&duration=2300&pause=100&color=880503&center=true&vCenter=true&width=435&lines=So+what+if+you+can+see+the+darkest+side+of+me%3F;no+one+will+ever+change+this+animal+I+have+become;help+me+believe+its+not+the+real+me;somebody+help+me+tame+this+animal+!" alt="Typing SVG" /></a>
 
