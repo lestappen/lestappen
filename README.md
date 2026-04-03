@@ -7,7 +7,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 <p align="center">no info here go on main
-<p align="center"> ㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤ ㅤhi @kimnson , @DANSTRl , @sargestappen , @81-SAINZ
+<p align="center"> ㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤhi @kimnson , @DANSTRl , @sargestappen , @81-SAINZ
 ㅤㅤ
 ㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ
 ㅤ
